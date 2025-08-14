@@ -1,1 +1,1 @@
-# ecomm_proj
+# E-COMMERCE PROJECT (BLENDERS&SHAKERS)
